@@ -56,7 +56,7 @@ NEWGIZA University | Graduation: July 2025
 ---
 
 ## 📫 Let’s Connect!  
-💼 [LinkedIn](#) | ✉️ abdelrahman.m.samir.41@gmail.com | 📱 +201021968969  
+💼 [LinkedIn](http://www.linkedin.com/in/abdelrahman-samir-41s) | ✉️ abdelrahman.m.samir.41@gmail.com | 📱 +201021968969  
 
 ---
 
